@@ -1,0 +1,6 @@
+Hao peng you, hao peng you,
+Sagwa shi wo de hao peng you
+Hao peng you, hao peng you,
+Sagwa shi wo de hao peng you...
+Sagwa, you're my best friend... (sole English lyrics)
+Sagwa...
